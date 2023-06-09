@@ -8,7 +8,7 @@ Fonsi, DY
 
 Uy, uy, uy, uy, uy,
 
-Hey yeah
+Hey yeah, oh OOHHH
 
 Pipiripi,pipiripi Daddy
 
@@ -20,7 +20,7 @@ Sí, sabes que ya llevo un rato mirándote
 
 Tengo que perrear contigo hoy (DY)
 
-Vi que tu mirada ya estaba llamándome
+Vi que tu mirada estaba mirandome
 
 Muéstrame el camino que yo voy
 
@@ -30,17 +30,17 @@ Me voy acercando y voy armando el plan
 
 Solo con pensarlo se acelera el pulso (oh yeah)
 
-Ya, ya me estás gustando más de lo normal
+Si, ya me estás gustando más de lo normal
 
 Todos mis sentidos van pidiendo más
 
-Esto hay que tomarlo sin ningún apuro
+Esto hay que tomarlo sin prisa
 
 ma lento
 
-Quiero respirar tu cuello despacito
+Quiero respirar tu cuello pacito
 
-Deja que te diga cosas al oído
+Deja que te diga cosas a la oreja 
 
 Para que te acuerdes si no estás conmigo
 
